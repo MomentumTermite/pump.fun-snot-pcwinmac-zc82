@@ -1,4 +1,4 @@
-# 
+# Seguro pump.fun sniper bot predefinições para Mac OS | Instantâneo pump.fun sniper bot predefinições para PC Windows. Com avaliação de riscos e extração MEV — otimizado para máximo desempeño en cada plataforma.
 
 
 
